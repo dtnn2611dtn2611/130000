@@ -20,4 +20,4 @@
 
 本站每日更新多部日本AV免费资源，实时收录当红女优如明日花绮罗、三上悠亚、桥本有菜等新作，同时提供经典影片合集，让您随时畅享超高清无码大作。立即收藏本站，第一时间掌握日本AV免费高清视频，享受最全面、最优质的日本AV资源！
 
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] (https://github.com/dtnn2611dtn2611/130000 ）</span>
